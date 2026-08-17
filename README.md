@@ -1,4 +1,4 @@
 # Hema
 i'm hemashree
 usn 1jt25cs043
-jyothy institute of technology
+i'm studying at jyothy institute of technology
